@@ -1,0 +1,1 @@
+This recipe is regarding an indian dish found on its beautiful streets called as "Papdi Chaat" or "Chaat Papdi".Chaat Papdi's main indgredient is Papdi which is made up of small flour crackers or pooris laced with either carom or cumin seeds or both.Other ingredients will be explained in the ingredients section.
